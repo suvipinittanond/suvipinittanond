@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🔭 I’m currently in a full-time bootcamp with Tech Elevator
+- 🌱 I’m currently learning code! 
+- 📫 How to reach me: suvipinittanond@gmail.com
+- 😄 Pronouns: she/her
